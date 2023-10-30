@@ -8,10 +8,6 @@ https://avmspinning.blogspot.com/2023/08/hiring-new-buds.html
 # Facebook page and poster
 https://www.facebook.com/profile.php?id=61550232009983&mibextid=ZbWKwL
 # Social media poster
- https://www.canva.com/design/DAFs0lA8_LQ/QGWfXYo009WUQ5GMSqBrXQ/edit?utm
- _content=DAFs0lA8_LQ&utm_campaign=designshare&utm_medium=link2&utm_source
- =sharebutton
+https://www.canva.com/design/DAFs0lA8_LQ/QGWfXYo009WUQ5GMSqBrXQ/edit?utm_content=DAFs0lA8_LQ&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 # email newsletter
- https://www.canva.com/design/DAFtdwJjZUc/62ZIPIMdDWaD9fkHFb0WjQ/edit?utm_co
- ntent=DAFtdwJjZUc&utm_campaign=designshare&utm_medium=link2&utm_source=sh
- arebutton
+https://www.canva.com/design/DAFtdwJjZUc/62ZIPIMdDWaD9fkHFb0WjQ/edit?utm_content=DAFtdwJjZUc&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
