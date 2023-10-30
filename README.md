@@ -18,9 +18,9 @@ https://rhythmemusicalband.blogspot.com/2023/10/open-call-for-musicians.html
 # Facebook Page and poster
 https://www.facebook.com/profile.php?id=61553138030856
 # Social media poster
-https://www.canva.com/design/DAFypIWGio4/K8y9N2sNi-RP1_UxUWUug/edit?utm_content=DAFypIWGio4&utm_campaign=designshare&utm_medium=link2
+https://www.canva.com/design/DAFypIWGio4/K8y9N2sNi-RP1_UxU-WUug/edit?utm_content=DAFypIWGio4&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 # Email Newsletter
-https://www.canva.com/design/DAFypp854tg/BAmvupA70gZenOHdV9MGQ/edit?utm_content=DAFypp854tg&utm_campaign=designshare&utm_medium=link2&u
+https://www.canva.com/design/DAFypp854tg/BAmvupA70gZenOHdV9-MGQ/edit?utm_content=DAFypp854tg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 # Aruna Rajeshwari M J - NM ID :191806CC0B35FDBBE414370B3B849DDE 
 # Blog
