@@ -22,7 +22,7 @@ https://www.canva.com/design/DAFypIWGio4/K8y9N2sNi-RP1_UxUWUug/edit?utm_content=
 # Email Newsletter
 https://www.canva.com/design/DAFypp854tg/BAmvupA70gZenOHdV9MGQ/edit?utm_content=DAFypp854tg&utm_campaign=designshare&utm_medium=link2&u
 
-# Aruna Rajeshwari M J - NM ID :
+# Aruna Rajeshwari M J - NM ID :191806CC0B35FDBBE414370B3B849DDE 
 # Blog
 https://saibabadisciple.blogspot.com/2023/08/divine-beneficiaries-of-being-saibabas.html
 # Facebook page and poster
@@ -30,5 +30,15 @@ https://www.facebook.com/profile.php?id=61550963060452&mibextid=ZbWKwL
 # Social media poster
 https://www.canva.com/design/DAFynqQydEM/g7qlf2wlKVoPDaiwA7i_iA/view?utm_content=DAFynqQydEM&utm_campaign=share_your_design&utm_medium=link&utm_source=shareyourdesignpanel
 # email Newsletter
-https://www.canva.com/design/DAFynSWbpCk/xdoXDnz4HSQ8q6rSo9Ufzg/edit?
-utm_content=DAFynSWbpCk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+https://www.canva.com/design/DAFynSWbpCk/xdoXDnz4HSQ8q6rSo9Ufzg/edit?utm_content=DAFynSWbpCk&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+
+# Ashiq S - NM ID :B6E0199516F9B8C946B4FA5A2C901285 
+# Blog
+https://boomboycars.blogspot.com/p/boomboy.html
+# Facebook page and poster
+https://www.facebook.com/photo?fbid=122099404268094600&set=a.122099404310094600
+# Social media poster
+https://www.canva.com/design/DAFyoLhlVEc/HY1BusxEEAwqAUIFhLJLlw/view?utm_content=DAFyoLhlVEc&utm_campaign=designshare&utm_medium=link&utm_source=editor
+# email newsletter
+https://www.canva.com/design/DAFyoUQp9P0/h4gKwTfINlWjMcGJPXQZdw/watch?utm_content=DAFyoUQp9P0&utm_campaign=designshare&utm_medium=link&utm_source=editor
+
